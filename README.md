@@ -32,7 +32,7 @@ Explore my repositories to see:
 ## 📫 Connect With Me
 - **Email:** elizabethndubuisi8@gmail.com  
 - **LinkedIn:** [linkedin.com/in/lizzy-8b13b5350](https://www.linkedin.com/in/lizzy-8b13b5350)  
-- **GitHub:** [github.com/Elizabeth3555](https://github.com/Elizabeth3555)
+- **GitHub:** [https://github.com/DevDimma)
 
 ---
 
